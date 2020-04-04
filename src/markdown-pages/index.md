@@ -12,6 +12,8 @@ title: "Liste collaborative pour vivre le confinement autrement"
 
 La liste ci-dessous n'est pas exhaustive et se concentre sur les messes à très grande portée. Nous vous proposons une liste a priori exhaustive ici : [messes catholiques en direct](/messes-catholiques-en-direct)
 
+Retrouvez les offices de la semaine Sainte en directs de vos paroisses, diocèses et communautés sur Bouge ton Église. Nous vous proposons d'ajouter votre direct si vous le souhaitez : [Offices en directs sur bougetoneglise.fr](https://www.bougetoneglise.fr/recherche/live) 
+
 * Avec le Pape chaque matin à 7h : [c'est ici - avec une rediffusion pour ceux qui dorment encore à 7h](https://www.ktotv.com/page/coronavirus-la-messe-du-pape-chaque-matin-a-7h-en-direct-sur-kto)
 * Consultez le programme spécial de KTO : [Le temps du confinement, programmation spéciale sur KTO](https://www.ktotv.com/page/le-temps-du-confinement-programmation-speciale-sur-kto)
 
